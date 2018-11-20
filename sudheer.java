@@ -4,5 +4,6 @@ i am cool
 hey there is no world
 attitude is everything
 let your action speak better than your words
- thankyou
+ thankyou fellas
+ have a great day
 
